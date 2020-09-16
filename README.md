@@ -30,6 +30,6 @@ Gifted with bright and insightful voice and feeling herself on the stage so natu
 
 Natasha Blinova performs with numerous Russian and international artists and bands, such as *Ángel Ontalva VS Priot Duo* (Spain – Russia), *Alain Blesing and Friends* (France – Russia), *Radio Vostok, Sakhra, Priot Trio, Priot Duo, Live People Ensemble, Moscow Violinjazz Quartet* and others. Natasha was a participant of *Voicingers* jazz competition (Poland) in 2016.
 
-To listen in full swing to what Natasha doing in music, we can reach out and listen to [Priot Ensemble's Present Continuous album on all streaming platforms (FANCYMUSIC release).](https://fancymusic.ru/priot-ensemble-present-continuous/) And to know Natalia's jazz side better we can listen to *Blue Priot* album (web release only), it consists of jazz standards only and soon will be freely available on the band's official website https://priot.ru .
+To listen in full swing to what Natasha doing in music, we can reach out and listen to [**Priot Ensemble's *Present Continuous*** album on all streaming platforms (FANCYMUSIC release).](https://fancymusic.ru/priot-ensemble-present-continuous/) And to know Natalia's jazz side better we can listen to *Blue Priot* album (web release only), it consists of jazz standards only and soon will be freely available on the band's official website https://priot.ru .
 
 ![Natasha Blinova and the keys.]( F075C230-97BE-4070-A91D-BD3AD3A9E0E1.jpeg)
